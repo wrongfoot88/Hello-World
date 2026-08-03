@@ -5,4 +5,5 @@ Did you know RBC's lose their DNA as they age? <\3
 If you're stupid and you know it clap your hands
 We're all paying storage fees, this makes us equal in the eyes of [REDACTED]
 ...how do you get behind yourself?
-Is love a sacrifice? 
+Is love a sacrifice?
+Matthew 10:7-10
